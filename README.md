@@ -1,3 +1,5 @@
+Not a coder, just a copypaster
+
 - 🌍Website: https://mikulski.rocks
 - 🔗Linktree: https://linktr.ee/Mikulski
 - ▶️ Telegram: https://t.me/mikulski_rocks
