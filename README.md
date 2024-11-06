@@ -1,7 +1,7 @@
 Not a coder, just a copypaster
 
 - 🌍Website: https://mikulski.rocks
-- 🔗Linktree: https://linktr.ee/Mikulski
+- 🔗All links: https://hipolink.me/mikulski
 - ▶️ Telegram: https://t.me/mikulski_rocks
 - 🔌 Discord: https://discord.gg/jCjs9wT
 
